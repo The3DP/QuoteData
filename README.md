@@ -14,5 +14,4 @@ d73928430@gmail.com
 >  never—in nothing, great or small, large or petty. Never
 >  give in except to convictions of honour and good sense"**
 
-Made by [The3DP](https://github.com/The3DP)
-This is a [GitHub Pages](https://docs.github.com/en/pages) site
+[GitHub Pages](https://docs.github.com/en/pages) site made by [The3DP](https://github.com/The3DP)
