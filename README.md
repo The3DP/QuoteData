@@ -4,6 +4,12 @@
 *d73928430@gmail.com*
 ---
 
+##### Daily quote for March 26th, 2026 (*Ben Shapiro*): 
+> ⍞ **"Without a clear moral vision,
+> we devolve into moral relativism, and from there,
+> into oblivion.”**
+
+
 ##### Daily quote for March 19th, 2026 (*Nate Saint*): 
 > ⍞ **"I would rather die now than to live
 >  a life of oblivious ease in so sick a world"**
