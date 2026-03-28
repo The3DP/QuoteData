@@ -4,6 +4,13 @@
 *d73928430@gmail.com*
 ---
 
+##### Daily quote for March 27th, 2026 (*J. R. R. Tolkien*):
+> ⍞ **"All that is gold does not glitter,
+> Not all those who wander are lost;
+> The old that is strong does not wither,
+> Deep roots are not reached by the frost.”**
+
+
 ##### Daily quote for March 26th, 2026 (*Ben Shapiro*): 
 > ⍞ **"Without a clear moral vision,
 > we devolve into moral relativism, and from there,
